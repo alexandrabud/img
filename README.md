@@ -1,3 +1,3 @@
 # img
 
-i just needed a drive where i could create public link for images from
+i just needed a drive where i could create public link for images for
